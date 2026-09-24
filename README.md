@@ -1,1 +1,0 @@
-# Jagatsingh_1250258229_nosql-project
